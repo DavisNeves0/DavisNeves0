@@ -6,7 +6,7 @@
 
 ## Hi 👋 Welcome ! 
 
-## Unfortunately, I've lost my other account ![DaviiNeves0](https://github.com/DaviNeves0)
+## Unfortunately, I've lost my other account ![DaiNeves0](https://github.com/DaviNeves0)
 
 ### I'm Davi. Let me present a little about myself :3
 
